@@ -3,7 +3,5 @@
 - 🌱 I’m currently learning all that I can
 - 💞️ I’m looking to collaborate on Android Apps and software
 - ⚡ Fun fact: GOD is real
--     X X
--      o
--    {---}
-BOZO24K/BOZO24K is a ✨ special ✨ repository because its `README.md` appears on your GitHub   ->
+- 1/9★DOPE★0N.1 ™
+BOZO24K/BOZO24K is a ✨ special ✨ repository because its `README.md` appears on your GitHub 
